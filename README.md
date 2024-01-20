@@ -45,7 +45,7 @@ I'm enthusiastic about staying up-to-date with the latest developments in cloud 
 
 ## 📫 Let's Connect
 
-- LinkedIn: [Your LinkedIn Profile](link-to-linkedin)
+- LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3BFNBkIrY3Rhu7c0X4HatG9g%3D%3D)
 - IG: [VîßhûDãrlíñg](https://www.instagram.com/vishudarilng?igshid=OGQ5ZDc2ODk2ZA==)
 - FB: [VîßhûDãrlíñg](https://www.facebook.com/evishweshwar?mibextid=ZbWKwL)
 
