@@ -46,6 +46,7 @@ I'm enthusiastic about staying up-to-date with the latest developments in cloud 
 ## 📫 Let's Connect
 
 - LinkedIn: [Your LinkedIn Profile]https://www.linkedin.com/in/vishweshwar-eega-626b86278/)
+- Nukari: https://www.naukri.com/mnjuser/profile
 - IG: [VîßhûDãrlíñg](https://www.instagram.com/vishudarilng?igshid=OGQ5ZDc2ODk2ZA==)
 - FB: [VîßhûDãrlíñg](https://www.facebook.com/evishweshwar?mibextid=ZbWKwL)
 
